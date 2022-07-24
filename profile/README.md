@@ -29,7 +29,7 @@
 </p>
 
 <p align="center">
-    Whole new experience on another level via multiple devices.
+    Whole new experience on another level.
 </p>
 
 <p align="center">
